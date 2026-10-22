@@ -1,1 +1,0 @@
-# jaatkc.github.io
